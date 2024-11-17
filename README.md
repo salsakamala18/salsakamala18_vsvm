@@ -19,3 +19,6 @@
 
 
 > vsvmvag_lenjpjp - [The H Zone](https://m.youtube.com/@TheHZone) - [Bad Apple - Honkai Impact 3rd GMV (Fu Hua)](https://youtu.be/Dzt6H_s9R_s) <img src="media/Dzt6H_s9R_s/Screenshot_2024-11-17-15-43-05-91.png">
+
+instrument-favorite
+> vsvmvagif - [tnbee](https://m.youtube.com/@tnbee) - 2024_02_29 - [Sparkle Theme Music EXTENDED - Monodrama (tnbee mix) | Honkai: Star Rail](https://youtu.be/-q80QowuJSk) <img src="media/-q80QowuJSk/Screenshot_2024-11-17-16-05-29-44.png">
