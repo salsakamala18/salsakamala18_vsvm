@@ -1,4 +1,7 @@
 # salsakamala18_vsvm
+> vsvmp_ljpjpjp - [solfa](https://m.youtube.com/@solfainfo) - 2024_10_20 - [【Full MV】BAPTISMA「Peinture」Official Music Video](https://youtu.be/MyP42sAhKcs) <img src="media/MyP42sAhKcs/Screenshot_2024-11-17-14-51-04-58.png">
+
+
 > vsvmp_lenenen - [Eili](https://m.youtube.com/@EiliYT) - [In Hell We Live, Lament - Mili feat. KIHOW / Covered by Eili](https://youtu.be/BKtLUYlS2_8) <img src="media/BKtLUYlS2_8/Screenshot_2024-11-17-14-40-13-09.png"> <img src="media/BKtLUYlS2_8/Screenshot_2024-11-17-14-40-54-29.png">
 
 
