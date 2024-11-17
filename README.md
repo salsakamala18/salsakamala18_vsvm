@@ -1,4 +1,6 @@
 # salsakamala18_vsvm
+> vsvmp_lenenen - [Eili](https://m.youtube.com/@EiliYT) - [In Hell We Live, Lament - Mili feat. KIHOW / Covered by Eili](https://youtu.be/BKtLUYlS2_8) <img src="media/BKtLUYlS2_8/Screenshot_2024-11-17-14-40-13-09.png">
+
 > vsvma_lenenen - [ナノ / NANO](https://m.youtube.com/@%E3%83%8A%E3%83%8E) - 2020_04_14 [Nevereverland / ナノ Music Video](https://youtu.be/Hx_nMs-sjZg) <img src="media/Hx_nMs-sjZg/Screenshot_2024-11-17-13-44-57-73.png">
 
 > vsvmvaf_ljpjpjp - [初星学園](https://m.youtube.com/@hatsuboshi_gakuen) - 2024_05_02 - [初星学園 「Luna say maybe」Official Music Video (HATSUBOSHI GAKUEN - Luna say maybe)](https://youtu.be/Sq5Dj0U06vQ) <img src="media/Sq5Dj0U06vQ/Screenshot_2024-11-17-13-33-12-54.png">
