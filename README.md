@@ -5,6 +5,9 @@
 > vsvm - [Snowdrop] - 24 - [[EN sub] Punishing: Gray Raven - Two Flowers ⚘⚘ (Animated PV + Full version)](https://youtu.be/Geks07p2O0k) <img src="media/Geks07p2O0k/Screenshot_2024-11-19-23-13-56-73.png">
 
 
+> vsvm - [BLAVALE Music Studio.] - 24 - [【MV】「Rise to the Horizon」伝説の剣を求め、果てしない冒険に挑む剣士たちの物語【オリジナル曲】](https://youtu.be/rgmZ8uYugOI) <img src="media/rgmZ8uYugOI/Screenshot_2024-11-19-23-29-35-39.png">
+
+
 > vsvmvp_ljpjpjp - [AZKi Channel](https://m.youtube.com/@AZKi-vi5mw) - 2023_11_22 - [Sincerely / AZKi (Cover)](https://youtu.be/XRanmtPhSU4) <img src="media/XRanmtPhSU4/Screenshot_2024-11-19-20-10-52-25.png"> <img src="media/XRanmtPhSU4/Screenshot_2024-11-19-20-15-18-57.png">
 
 
