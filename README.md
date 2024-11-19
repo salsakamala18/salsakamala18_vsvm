@@ -2,6 +2,9 @@
 > vsvmvaf_ljpjpjp - [NEUN](https://m.youtube.com/@NEUN09) - [Heiliges Requiem / NEUN【Official MV】](https://youtu.be/niLhHoFSJO8) <img src="media/niLhHoFSJO8/Screenshot_2024-11-17-15-02-42-45.png">
 
 
+> vsvmvp_ljpjpjp - [AZKi Channel](https://m.youtube.com/@AZKi-vi5mw) - 2023_11_22 - [Sincerely / AZKi (Cover)](https://youtu.be/XRanmtPhSU4) <img src="media/XRanmtPhSU4/Screenshot_2024-11-19-20-10-52-25.png"> <img src="media/XRanmtPhSU4/Screenshot_2024-11-19-20-15-18-57.png">
+
+
 > vsvmvp_lcncncn - [玥Itsuki Channel](https://m.youtube.com/@ItsukiIanvs) - 2024_11_08 - [【扉暮IANVS 】暮光 Gloaming Light（Official Music Video）](https://youtu.be/ngugUrxnrug) <img src="media/ngugUrxnrug/Screenshot_2024-11-19-15-27-14-97.png">
 
 
