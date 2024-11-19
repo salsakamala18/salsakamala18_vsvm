@@ -14,6 +14,9 @@
 > vsvmvaf_ljpjpjp - [焔魔るり CH. / Ruri Enma](https://m.youtube.com/@EnmaRuri) - 2024_11_16 - [棘宵 / 焔魔るり【Music Video】](https://youtu.be/fORTvrmNFeM)
 
 
+> vsvmvp_ljpjpjp - [Earendel ch. 厄倫蒂兒]() - 2023_09_11 - [【周年記念】星になる( Islet feat.倚水) cover. 【厄倫蒂兒 Earendel】 ](https://youtu.be/uhqKUExNaF4)
+
+
 > vsvmva_ljpjpjp - [焔魔るり CH. / Ruri Enma](https://m.youtube.com/@EnmaRuri) [en](https://www.youtube.com/channel/UC1nqXaKzG4hd1SRFVra16gw) - [棘宵 / 焔魔るり【Music Video】](https://youtu.be/fORTvrmNFeM)
 
 
