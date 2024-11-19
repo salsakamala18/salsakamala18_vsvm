@@ -37,6 +37,10 @@
 
 > vsvma_lenenen - [ナノ / NANO](https://m.youtube.com/@%E3%83%8A%E3%83%8E) - 2020_04_14 [Nevereverland / ナノ Music Video](https://youtu.be/Hx_nMs-sjZg) <img src="media/Hx_nMs-sjZg/Screenshot_2024-11-17-13-44-57-73.png">
 
+
+> vsvmva_lenenen - [Narushio](https://m.youtube.com/@narushio) - 2024 - [Shaper's Ripples: Burning Vow【PGR】](https://youtu.be/rHkpMzBJ6lU) <img src="media/rHkpMzBJ6lU/Screenshot_2024-11-19-22-51-34-57.png">
+
+
 > vsvmvaf_ljpjpjp - [初星学園](https://m.youtube.com/@hatsuboshi_gakuen) - 2024_05_02 - [初星学園 「Luna say maybe」Official Music Video (HATSUBOSHI GAKUEN - Luna say maybe)](https://youtu.be/Sq5Dj0U06vQ) <img src="media/Sq5Dj0U06vQ/Screenshot_2024-11-17-13-33-12-54.png">
 
 
