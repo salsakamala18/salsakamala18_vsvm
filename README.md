@@ -8,6 +8,9 @@
 > vsvmvp_lcncncn - [煌Kirali Channel](https://m.youtube.com/@%E7%85%8CKirali) - 2023_10_25 - [霓NEO(n) - 霓光 Neon Light (Official Music Video)](https://youtu.be/eZ0JPnDdnks) <img src="media/eZ0JPnDdnks/Screenshot_2024-11-19-16-23-18-72.png">
 
 
+> vsvmvp_lcncncn - [澪Rei Channel](https://m.youtube.com/@%E6%BE%AARei) - 2023_11_10 - [漫夜 Sleepless - 澪Rei【Official Music Video】](https://youtu.be/Gl428Ix5ZC8)
+
+
 > vsvmvaf_ljpjpjp - [焔魔るり CH. / Ruri Enma](https://m.youtube.com/@EnmaRuri) - 2024_11_16 - [棘宵 / 焔魔るり【Music Video】](https://youtu.be/fORTvrmNFeM)
 
 
