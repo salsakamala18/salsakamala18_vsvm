@@ -5,6 +5,9 @@
 > vsvmvp_lcncncn - [玥Itsuki Channel](https://m.youtube.com/@ItsukiIanvs) - 2024_11_08 - [【扉暮IANVS 】暮光 Gloaming Light（Official Music Video）](https://youtu.be/ngugUrxnrug) <img src="media/ngugUrxnrug/Screenshot_2024-11-19-15-27-14-97.png">
 
 
+> vsvmvp_lcncncn - [煌Kirali Channel](https://m.youtube.com/@%E7%85%8CKirali) - 2023_10_25 - [霓NEO(n) - 霓光 Neon Light (Official Music Video)](https://youtu.be/eZ0JPnDdnks) <img src="media/eZ0JPnDdnks/Screenshot_2024-11-19-16-23-18-72.png">
+
+
 > vsvmvaf_ljpjpjp - [焔魔るり CH. / Ruri Enma](https://m.youtube.com/@EnmaRuri) - 2024_11_16 - [棘宵 / 焔魔るり【Music Video】](https://youtu.be/fORTvrmNFeM)
 
 
