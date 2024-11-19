@@ -23,6 +23,9 @@
 > vsvmvp_lcncncn - [澪Rei Channel](https://m.youtube.com/@%E6%BE%AARei) - 2023_11_10 - [漫夜 Sleepless - 澪Rei【Official Music Video】](https://youtu.be/Gl428Ix5ZC8)
 
 
+> vsvmp_lcncncn - [戰雙帕彌什](https://m.youtube.com/@%E6%88%B0%E9%9B%99%E5%B8%95%E5%BD%8C%E4%BB%80) - 2023_05_08 - [《戰雙帕彌什》露西亞·深紅囚影印象曲 | 鳴響](https://youtu.be/tCk1vk0iaxQ) <img src="media/tCk1vk0iaxQ/Screenshot_2024-11-19-23-35-20-33.png">
+
+
 > vsvmvaf_ljpjpjp - [焔魔るり CH. / Ruri Enma](https://m.youtube.com/@EnmaRuri) - 2024_11_16 - [棘宵 / 焔魔るり【Music Video】](https://youtu.be/fORTvrmNFeM)
 
 
