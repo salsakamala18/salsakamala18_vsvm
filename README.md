@@ -23,6 +23,9 @@
 > vsvmp_ljpjpjp - [solfa](https://m.youtube.com/@solfainfo) - 2024_10_20 - [【Full MV】BAPTISMA「Peinture」Official Music Video](https://youtu.be/MyP42sAhKcs) <img src="media/MyP42sAhKcs/Screenshot_2024-11-17-14-51-04-58.png">
 
 
+> vsvmvp_ljpjpjp - [Oumua ch. 埃穆亞](https://m.youtube.com/@OumuaXDFP) - 2022_12_19 - [星の消えた夜に / 厄倫蒂兒 × 涅默 × 埃穆亞 cover【歌ってみた】](https://youtu.be/XPywHJ4hN5w)
+
+
 > vsvmp_lenenen - [Eili](https://m.youtube.com/@EiliYT) - [In Hell We Live, Lament - Mili feat. KIHOW / Covered by Eili](https://youtu.be/BKtLUYlS2_8) <img src="media/BKtLUYlS2_8/Screenshot_2024-11-17-14-40-13-09.png"> <img src="media/BKtLUYlS2_8/Screenshot_2024-11-17-14-40-54-29.png">
 
 
