@@ -1,8 +1,11 @@
 # salsakamala18_vsvm
-> vsvmaf_ljpjpjp - [NEUN](https://m.youtube.com/@NEUN09) - [Heiliges Requiem / NEUN【Official MV】](https://youtu.be/niLhHoFSJO8) <img src="media/niLhHoFSJO8/Screenshot_2024-11-17-15-02-42-45.png">
+> vsvmvaf_ljpjpjp - [NEUN](https://m.youtube.com/@NEUN09) - [Heiliges Requiem / NEUN【Official MV】](https://youtu.be/niLhHoFSJO8) <img src="media/niLhHoFSJO8/Screenshot_2024-11-17-15-02-42-45.png">
 
 
 vsvmvaf_ljpjpjp - [焔魔るり CH. / Ruri Enma](https://m.youtube.com/@EnmaRuri) - 2024_11_16 - [棘宵 / 焔魔るり【Music Video】](https://youtu.be/fORTvrmNFeM)
+
+
+> vsvmva_ljpjpjp - [焔魔るり CH. / Ruri Enma](https://m.youtube.com/@EnmaRuri) [en](https://www.youtube.com/channel/UC1nqXaKzG4hd1SRFVra16gw) - [棘宵 / 焔魔るり【Music Video】](https://youtu.be/fORTvrmNFeM)
 
 
 > vsvmp_ljpjpjp - [solfa](https://m.youtube.com/@solfainfo) - 2024_10_20 - [【Full MV】BAPTISMA「Peinture」Official Music Video](https://youtu.be/MyP42sAhKcs) <img src="media/MyP42sAhKcs/Screenshot_2024-11-17-14-51-04-58.png">
