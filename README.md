@@ -11,6 +11,9 @@
 > vsvm - [Nqsi] - [アンノウン・マザーグース / wowaka (cover) - Nqsi](https://youtu.be/e3AB0WnvO4A) <img src="media/e3AB0WnvO4A/Screenshot_2024-11-20-07-49-15-61.png">
 
 
+> vsvm - [KuBi Lab] - 24 - [星夜幻想 / 劇場版 MAIN THEME (Full Size Ver.)](https://youtu.be/tkhzG0-F6BU) <img src="media/tkhzG0-F6BU/Screenshot_2024-11-20-07-57-13-39.png">
+
+
 > vsvm - [BLAVALE Music Studio.] - 24 - [【MV】「Rise to the Horizon」伝説の剣を求め、果てしない冒険に挑む剣士たちの物語【オリジナル曲】](https://youtu.be/rgmZ8uYugOI) <img src="media/rgmZ8uYugOI/Screenshot_2024-11-19-23-29-35-39.png">
 
 
