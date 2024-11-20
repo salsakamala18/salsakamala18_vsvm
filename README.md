@@ -14,7 +14,7 @@
 > vsvm - [KuBi Lab] - 24 - [星夜幻想 / 劇場版 MAIN THEME (Full Size Ver.)](https://youtu.be/tkhzG0-F6BU) <img src="media/tkhzG0-F6BU/Screenshot_2024-11-20-07-57-13-39.png">
 
 
-> vsvm - [YuNi - official channel -] - 24 - [未完成 - Covered by YuNi【家入レオ】](https://youtu.be/lgGCKohN91U)
+> vsvm - [YuNi - official channel -] - 24 - [未完成 - Covered by YuNi【家入レオ】](https://youtu.be/lgGCKohN91U) <img src="media/lgGCKohN91U/Screenshot_2024-11-20-08-01-24-75.png">
 
 
 > vsvm - [BLAVALE Music Studio.] - 24 - [【MV】「Rise to the Horizon」伝説の剣を求め、果てしない冒険に挑む剣士たちの物語【オリジナル曲】](https://youtu.be/rgmZ8uYugOI) <img src="media/rgmZ8uYugOI/Screenshot_2024-11-19-23-29-35-39.png">
